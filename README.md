@@ -1,4 +1,4 @@
-Fatally Flawed Experiments in Euthanasia and Assisted Suicide 
+**Fatally Flawed Experiments in Euthanasia and Assisted Suicide**
 
 Beginning with the first,short-lived experiment with a law permitting euthanasia, which was conducted
 in the Northern Territory from July 1996 to March 1997, there are thirty jurisdictions which have (or
